@@ -14,3 +14,6 @@ Téléconseillère
 Titre professionnel de Technicien Supérieur des systèmes et réseaux
 
 ## Hobbies
+
+Musique
+Sport
