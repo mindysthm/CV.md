@@ -1,4 +1,6 @@
 # Sétham Mindy
+![photo cv](https://pm1.aminoapps.com/7954/f6eb48acfa8237260a4503f0507e982ac10029d2r1-736-736v2_uhq.jpg)
+
 Actuellement en formation TSSR, je recherche une alternance en AIS pour Septembre 2025
 
 ## Expériences professionelles
