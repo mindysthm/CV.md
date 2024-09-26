@@ -19,3 +19,6 @@ Titre professionnel de Technicien Supérieur des systèmes et réseaux
 
 Musique
 Sport
+
+## Liens externes
+_Profil SLack_ https://wild4ever.slack.com/team/U07NL4F46CS
